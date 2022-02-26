@@ -1,0 +1,2 @@
+# fuckRussia
+fuck russia repo
