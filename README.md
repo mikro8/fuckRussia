@@ -13,7 +13,7 @@ remember to append 2 space for new line
 7.Fuck ရုရှား  
 8.Jebeš Rusiju  
 9.Майната й на Русия  
-10.他媽的俄羅斯  
+10.干俄羅斯  
 11.Do prdele Rusko  
 12.Fuck Rusland  
 13.Fiku Rusion  
